@@ -1,6 +1,6 @@
 # waterudrinking-support
 
-If you're experiencing issues with WaterApp, contact us at:
+If you're experiencing issues with Water U Drinking, contact us at:
 
 📧 greggabe808@gmail.com
 
